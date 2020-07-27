@@ -1,2 +1,2 @@
-Bonjour
+Bonjour les amis!
 
